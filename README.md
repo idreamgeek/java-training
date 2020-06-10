@@ -1,2 +1,2 @@
 # java-training
-# tira paro Rene!
+# que tranza
